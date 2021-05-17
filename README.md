@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Abap coder :)
 - 📫 How to reach me : muhammedtanidir@gmail.com
 - I'm open mind person and enjoy to learn new ability. 
-- I graduated engineering as a mining engineer but after 4 years later i recognize that i have to swich my career to software engineer because of software was my dream before. 
+- I graduated engineering as a mining engineer and after 4 years gains I swich my career to software engineer which was my dream before. 
 - Thanks to  be Mining engineering I am multidisipline person. 
 - I finished several courses about SAP ABAP programming. 
 - I just focus ABAP programming and want to be a ABAP consultant. 
